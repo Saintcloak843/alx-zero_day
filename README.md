@@ -1,1 +1,1 @@
-I'm going to be a software engineer
+Tough things first!
